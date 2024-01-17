@@ -1,2 +1,2 @@
 # newone
-small kitty worm kitty, little ball of fur
+small kitty warm kitty, little ball of fur
